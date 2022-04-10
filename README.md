@@ -1,1 +1,1 @@
-# Everardo estudiante de la ingenieria de software en la Unadm
+# Everardo estudiante de la ingenieria en desarrollo de  software en la Unadm
